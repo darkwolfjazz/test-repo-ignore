@@ -1,1 +1,1 @@
-# Forked and now i am writing this 
+# i have followed the steps and now i am writing this
